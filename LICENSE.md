@@ -1,4 +1,4 @@
-
+smart GarageBand for macOS Extension | cloud-sync + audio-cleanup offers the most advanced GarageBand for macOS extension, with cloud-sync and audio-cleanup. Ideal for
 
 
 
